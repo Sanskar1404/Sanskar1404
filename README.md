@@ -23,7 +23,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/sanskar-sharma-375226194/](https://www.linkedin.com/in/sanskar-sharma-375226194/)
 
-- ⚡ Fun fact **I think I am Funny Xd**
+- ⚡ Fun fact **I think I am Funny xD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
